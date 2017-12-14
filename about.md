@@ -1,15 +1,18 @@
 ---
 layout: page
-title: About
+title: What kind of gnar do you send?
 permalink: /about/
+published: true
 ---
 
-Some information about you!
+### Rock Climbing
 
-### More Information
+San Diego, Tahquitz, Suicide, Joshua Tree, Red Rock Canyon, Sierra Nevada
 
-A place to include any other types of information that you'd like to include about yourself.
+### Mountaineering/Alpine
 
-### Contact me
+Sierra Nevada, Alaska, Cascades, Mexico
 
-[email@domain.com](mailto:email@domain.com)
+### Skiing
+
+Sierra Nevada, Big Bear, Alaska, Cascades
