@@ -162,6 +162,6 @@ The route goes counterclockwise. I fly onto the airstrip at the lower right, the
 ![All clear on Foraker](/images/IMG_4332_resized.jpeg)
 
 
-Huge serac fall avalanche coming down from near Windy Corner into the NE Fork (Valley of Death):
-<a href="http://www.youtube.com/watch?feature=player_embedded&v=qPnz28tdyS4" target="_blank"><img src="http://img.youtube.com/vi/qPnz28tdyS4/0.jpg" alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+Huge serac fall avalanche coming down from near Windy Corner into the NE Fork (Valley of Death), youtube link:
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=qPnz28tdyS4" target="_blank"><img src="http://img.youtube.com/vi/qPnz28tdyS4/0.jpg" border="10" /></a>
 
