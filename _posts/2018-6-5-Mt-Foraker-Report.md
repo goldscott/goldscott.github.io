@@ -103,8 +103,8 @@ The route goes counterclockwise. I fly onto the airstrip at the lower right, the
 *Ridge to Foraker doesn't look bad from here*
 ![Ridge to Foraker doesn't look bad from here](/images/IMG_4220_resized.jpeg)
 
-*My footprints below where I turned around. Nasty crevasses on the left and smooth hidden dangers on the left*
-![My footprints below where I turned around. Nasty crevasses on the left and smooth hidden dangers on the left](/images/IMG_4226_resized.jpeg)
+*My footprints below where I turned around. Nasty crevasses on the left and smooth hidden dangers on the right*
+![My footprints below where I turned around. Nasty crevasses on the left and smooth hidden dangers on the right](/images/IMG_4226_resized.jpeg)
 
 *Looking back as I climb 12472*
 ![Looking back as I climb 12472](/images/IMG_4227_resized.jpeg)
@@ -119,7 +119,7 @@ The route goes counterclockwise. I fly onto the airstrip at the lower right, the
 ![Huge lenticular on Denali](/images/IMG_4233_resized.jpeg)
 
 *View southeast to the summit of Mt Crosson*
-![View southeast to the summit of Mt Crosson](/images/IMG_4134_resized.jpeg)
+![View southeast to the summit of Mt Crosson](/images/IMG_4234_resized.jpeg)
 
 *To the Summit! Foraker in the background*
 ![To the Summit! Foraker in the background](/images/IMG_4259_resized.jpeg)
