@@ -17,8 +17,8 @@ The route goes counterclockwise. I fly onto the airstrip at the lower right, the
 *Foraker, 12472, Crosson, and Kahiltna Dome on the skyline seen from the flight in*
 ![Foraker, 12472, Crosson, and Kahiltna Dome on the skyline seen from the flight in](/images/IMG_4142_resized.jpeg)
 
-*Mount Hunter and some aistrip tents*
-![Mount Hunter and some aistrip tents](/images/IMG_4144_resized.jpeg)
+*Mount Hunter and some airstrip tents*
+![Mount Hunter and some airstrip tents](/images/IMG_4144_resized.jpeg)
 
 *Camp 1, climber brushing teeth on his way to the bathroom area*
 ![Camp 1, climber brushing teeth on his way to the bathroom area](/images/IMG_4146_resized.jpeg)
