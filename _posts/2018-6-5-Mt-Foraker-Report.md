@@ -179,7 +179,7 @@ I looked back at the chutes and ribs to see my mistake and heinous effort. Had I
 ![I went down the rightmost snow slope that ended in a cliff. Instead of going further right to get smoothly onto the glacier, I went farther left and scrambled down the cliff](/images/IMG_4284_resized.jpeg)
 
 
-**Day 9** (Monday, June 4): I slept in and enjoyed the morning on the lower glacier, talking to my neighbors, a father and his 16 year-old son, about their state highpoints and peakbagging persuits. I started packing some things in preparation for the day, then set off to camp 2 with not much besides a shovel and some water in my backpack.
+**Day 9** (Monday, June 4): I slept in and enjoyed the morning on the lower glacier, talking to my neighbors, a father and his 16 year-old son, about their state highpoints and peakbagging pursuits. I started packing some things in preparation for the day, then set off to camp 2 with not much besides a shovel and some water in my backpack.
 
 In 3.5 hours, I skinned up to camp 2, dug out my cache (duffel and sled), and bombed back down to camp 1 with the empty sled flailing wildy behind me as I straightlined it down Ski Hill. I broke down camp and distributed everything in my backpack and duffel.
 
